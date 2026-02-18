@@ -1,7 +1,5 @@
 Zeemmy
 
-![alt text](https://media.discordapp.net/attachments/908095357194469380/1473809438790910112/Wiki_shadow_icon-removebg-preview.png?ex=69978f80&is=69963e00&hm=f7fa1969d578eed237e9d62ee6687f5bba1210f0e71d1fe99762f34f3c198fc5&=&format=webp&quality=lossless&width=625&height=625 "Shadow")
-
 16 and under can int ig but I only befriend 17+, srry
 
 I'm usually online off-tab or with my bf
