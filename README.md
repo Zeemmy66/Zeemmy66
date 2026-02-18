@@ -1,5 +1,4 @@
 Zeemmy
-matching w/ salty
 
 16 and under can int ig but I only befriend 17+, srry
 
