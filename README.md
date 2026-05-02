@@ -10,7 +10,7 @@ Favorite sonic characters: scourge, sonic, knuckles, eclipse.
 
 Favorite fnaf characters: toy chica, monty gator, puppet.
 
-I love kriselle, suselle, v4v, sonknux, and chappel roan.
+I love russian roulette/gamdiac, kriselle, suselle, v4v, sonknux, and chappel roan.
 
 I regularly hide people, don't get your friends to ask why, it's annoying.
 
