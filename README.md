@@ -1,14 +1,10 @@
 16 and under can int but I only befriend 17+, srry
 
-PLEASE INT IF YOU LIKE THE TERMINATOR. 
+PLEASE INT IF YOU LIKE THE TERMINATOR. nobody is actually into it ever
 
 I'm usually online off-tab or with my bf
 
 No hate but I don't really befriend systems as someone medically recognized lol, no malicious intent
-
-Favorite sonic characters: scourge, sonic, knuckles, eclipse.
-
-Favorite fnaf characters: toy chica, monty gator, puppet.
 
 I love russian roulette/gamdiac, kriselle, suselle, v4v, sonknux, and chappel roan.
 
