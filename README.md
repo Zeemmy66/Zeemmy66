@@ -6,7 +6,7 @@ I'm usually online off-tab or with my bf
 
 No hate but I don't really befriend systems as someone medically recognized lol, no malicious intent
 
-I love russian roulette/gamdiac, kriselle, suselle, v4v, sonknux, and chappel roan.
+I love russian roulette/gamdiac, kriselle, suselle, v4v, sonknux, and queentenna!!!
 
 I regularly hide people, don't get your friends to ask why, it's annoying.
 
