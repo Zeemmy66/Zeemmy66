@@ -4,7 +4,7 @@ PLEASE INT IF YOU LIKE THE TERMINATOR. nobody is actually into it ever
 
 I'm usually online off-tab or with my bf
 
-No hate but I don't really befriend systems as someone medically recognized lol, no malicious intent. also I do not befriend male-centered people
+No hate but I don't really befriend systems as someone medically recognized lol, no malicious intent. also I do not befriend male-centered people (especially if your whole personality is your boyfriend omfg shut uppp)
 
 I love russian roulette/gamdiac, kriselle, suselle, v4v, sonknux, and queentenna!!!
 
